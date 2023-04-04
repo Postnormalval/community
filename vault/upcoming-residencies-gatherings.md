@@ -39,11 +39,11 @@ Through a series of hands on workshop, retreat, participatory cooking, communal 
 - **When:** 
 Workshop  09/06 @ 18h30 - 02/07/ 2023
 - **Where:** [Life Itself Praxis Hub](https://lifeitself.org/hubs/bergerac/), Bergerac, France (near Bordeaux).
-- **Who:**  cooking activists , bodhisattvas , people interested in food in conscious co-living  communities, people curious to let themselves be in-formed by food and act from its teachings. ( 11 persons max) 
+- **Who:**  cooking activists , bodhisattvas , people interested in food in conscious co-living  communities, people curious to let themselves be in-formed by food and act from its teachings. (11 persons max) 
 - **Facilitators:** [Valérie Duvauchelle](https://en.lacuisinedelabienveillance.org/)
 - **Cost:** 
- From 1550 € (single standard room) to 1650 € (single premium room) food included (Early birds : 25 per cent for signing before the 25th of april )
-Prices include retreat, training, residency in an individual room and 3 meals a day. 
+From 1,200€ up to 1,630€. Early birds: **25% off for signing before the 25th of april**.
+Prices include retreat, training, residency and 3 meals a day for 3 weeks. 
 
 [Learn more and apply](https://lifeitself.org/sympoiesis/conscious-food-workshop-june-2023)
 
